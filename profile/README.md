@@ -14,7 +14,7 @@ At **Uelman**, we know that time is critical in the digital world. Our agile app
 We’re not just developers—we’re fast coding ninjas. Precision, speed, and quality define our work.  
 
 ## 📫 Get in Touch  
-Want to collaborate? Reach out at **[gxlthz@gmail.com](mailto:gxlthz@gmail.com)**.  
+Want to collaborate? Reach out at **[manuel.leon@uelman.com](mailto:manuel.leon@uelman.com)**.  
 
 ---
 ✦ *Fast. Smart. Reliable.*  
